@@ -1,1 +1,1 @@
-# Galería de fotos
+# Spotify - premium and support pages
